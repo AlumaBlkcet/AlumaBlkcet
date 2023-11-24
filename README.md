@@ -8,3 +8,4 @@
 AlumaBlkcet/AlumaBlkcet is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+cd[]change user/credentails/bypass:to==passkeypin("****")install >Email =lumaveloce099@gmail.com/inbox
